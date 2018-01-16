@@ -1,1 +1,0 @@
-# JavaSimpleTricks.github.io
